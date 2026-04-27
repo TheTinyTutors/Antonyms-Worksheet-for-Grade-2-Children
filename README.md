@@ -1,6 +1,6 @@
 # Antonyms Worksheet for Grade 2 – Fun Learning with Activities
 
-![alt text](C:\Users\Obito\Downloads\_banner grade - 2\Antonyms Worksheet for Grade 2)
+<img width="1200" height="675" alt="Antonyms Worksheet for Grade 2" src="https://github.com/user-attachments/assets/b64968a4-5514-4fe6-9c51-0b7415bcf818" />
 
 If you are looking for a simple way to teach vocabulary, this **antonyms worksheet for grade 2** is a great resource for kids.
 
@@ -61,7 +61,8 @@ This makes **easy antonyms for grade 2 students** easier to understand and remem
 
 ---
 
-## 📥 Download Worksheet (Backlink Section)
+## 📥 Download Worksheet
+<img width="1200" height="675" alt="Antonyms Worksheet for Grade 2 Download" src="https://github.com/user-attachments/assets/1799ff40-9157-4b02-a4a3-ff6a858d2ccf" />
 
 You can download the printable worksheet here:
 
